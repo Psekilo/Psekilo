@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Psekilo
+- 👀 I’m interested in Data optimization.
+- 🌱 I’m currently learning R.
+- 💞️ I’m looking to collaborate on nothing for now ~_~
+- 📫 How to reach me ;P
